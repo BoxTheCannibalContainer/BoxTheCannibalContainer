@@ -1,6 +1,8 @@
 #BoxTheCannibalContainer
 <img width="717" height="535" alt="1000016061" src="https://github.com/user-attachments/assets/6ba05734-8559-4ac8-8526-d8e519685304" />
 
+https://-about-me--box.straw.page
+
 —————————————————————————
 📦✏️ ~ ` My Fictionkins ` ~✏️📦
 
@@ -31,7 +33,7 @@ thats all that im comf saying byee!!
 <img width="300" height="200" alt="1000016068" src="https://github.com/user-attachments/assets/0e44193c-e436-48bc-a2f3-60976815147a" />
 
 
-https://-about-me--box.straw.page
+
 
 
 
