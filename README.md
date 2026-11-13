@@ -31,11 +31,9 @@ thats all that im comf saying byee!!
 <img width="300" height="200" alt="1000016068" src="https://github.com/user-attachments/assets/0e44193c-e436-48bc-a2f3-60976815147a" />
 
 
-
+https://-about-me--box.straw.page
 
 
 
 <img width="717" height="535" alt="1000016062" src="https://github.com/user-attachments/assets/2631ab4d-94c0-41c9-b7aa-2e4ef76c958f" />
 <!--
-
-my strawpage - https://-about-me--box.straw.page
